@@ -1,5 +1,5 @@
 # Mom-Happy-Birthday-Video
-Leo Zhu's 2016 Video Portfolio
+Happy Birthday Video Made in After Effect For my Mom's 2016 Birthday.
 
 Video is uploaded to Vimeo: https://vimeo.com/197575897
 
